@@ -1,1 +1,1 @@
-# Ampas_Dark_System.aiz4-itn
+Crack By @yatimitu123 Github Ini Telah Diawasi Oleh Dark
